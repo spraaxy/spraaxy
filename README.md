@@ -1,10 +1,15 @@
----
 
+
+<center><h3>🧐 Curto ouvir uns rap de anime e bater um papo com os colegas no discord. 😊</h3></center> 
+
+<center><h3>😀 Curto animes! 😉</h3></center> 
+
+<img align="center" src="https://cdn.discordapp.com/attachments/840779030093627413/841082544724508702/tumblr_n0p3dnD2u91s3dw0xo1_500.gif" alt="Carregou o gif não!!!">
 
 ---
 
   
-<img src="https://cdn.discordapp.com/attachments/793453573534122074/805519646232543272/setaD_BR.gif" height="20px" width="20px"> **Olá, me chamo Spraaxy. Bom eu estudo Engenharia Social a um tempo e me considero "Iniciante".**
+<img src="https://cdn.discordapp.com/attachments/840779030093627413/841082544724508702/tumblr_n0p3dnD2u91s3dw0xo1_500.gif" height="20px" width="20px"> **Olá, me chamo Spraaxy. Bom eu estudo Engenharia Social a um tempo e me considero "Iniciante".**
 
 
  --- 
